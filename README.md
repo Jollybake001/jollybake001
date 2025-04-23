@@ -1,4 +1,4 @@
-# Hi My Name is Chika Joy Kenneth-Nwagboniwe👋
+# Hi My Name is Chika Joy Mbah👋
 ## I am a data analyst
 ## I am also a researcher and a master student of animal breeding, genetics and biotechnology
 ---
